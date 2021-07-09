@@ -1,1 +1,1 @@
-# abdulrehmankabli.github.com
+# abdulrehmankabli.com
